@@ -34,3 +34,6 @@ A list of names that Channing Tatum will answer to:
 * Chimney TubeTop
 * Chitty Chitty Tatum
 * Chargert Thatchum
+
+
+![Magic Mike](img/magic-mike.jpg)
