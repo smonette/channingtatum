@@ -1,6 +1,6 @@
-# Channing Tatum
+# Channing Tatum, or whatever his name is
 
-A list of names that Channing Tatum will answer to:
+A list of names that Channing Tatum would probably answer to:
 
 * Tater Chanting
 * Chanum Tainting
@@ -34,6 +34,7 @@ A list of names that Channing Tatum will answer to:
 * Chimney TubeTop
 * Chitty Chitty Tatum
 * Chargert Thatchum
+
 
 
 ![Magic Mike](img/magic-mike.jpg)
