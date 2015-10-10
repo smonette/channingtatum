@@ -35,6 +35,8 @@ A list of names that Channing Tatum would probably answer to:
 * Chitty Chitty Tatum
 * Chargert Thatchum
 * Charming Possum
+* Chunder Tantrum
+* Chigger Teetums
 
 
 
