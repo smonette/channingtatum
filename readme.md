@@ -37,6 +37,12 @@ A list of names that Channing Tatum would probably answer to:
 * Charming Possum
 * Chunder Tantrum
 * Chigger Teetums
+* Lady Chatterley's Tater
+* Chat Toulette
+* Charlie Chaptates
+* Charlie's Tangles
+* Charlie "Winning" Teen 
+
 
 
 
