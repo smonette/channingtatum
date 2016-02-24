@@ -46,9 +46,7 @@ A list of names that Channing Tatum would probably answer to:
 * Chatter-Rings Tada
 * Chitty Chitty Tang Tang
 * Tatum Titter Tada Chang Bang
-* Chitty Citty Tang Bang
-* Tanning Tater Balls
-
+* Chitty Chitty Tang Bang
 
 
 
