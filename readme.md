@@ -44,6 +44,7 @@ A list of names that Channing Tatum would probably answer to:
 * Charlie "Winning" Teen 
 * Chattanooga Tennessee
 * Chatter-Rings Tada
+* Mark Wahlberg
 * Chitty Chitty Tang Tang
 * Tatum Titter Tada Chang Bang
 * Chitty Chitty Tang Bang
