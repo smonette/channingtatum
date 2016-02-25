@@ -50,6 +50,8 @@ A list of names that Channing Tatum would probably answer to:
 * Chitty Chitty Tang Bang
 * Tanning Tater Balls
 * Chunky Totes
+* Chattering Tom
+* Jittery Tandem
 
 
 
