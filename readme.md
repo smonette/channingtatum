@@ -55,8 +55,12 @@ A list of names that Channing Tatum would probably answer to:
 * Curly Teen
 * Shanty Traw-traw
 * Chowder Trawler
-
-
+* Champy Tamper
+* Chortle Turpin
+* Chutey Tootin'
+* Poodle Chewsit
+* Charming Torquer
+* Charty T-square
 
 ![Magic Mike](img/magic-mike.jpg)
 ![Science](img/science.gif)
