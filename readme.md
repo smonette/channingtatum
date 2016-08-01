@@ -61,6 +61,13 @@ A list of names that Channing Tatum would probably answer to:
 * Poodle Chewsit
 * Charming Torquer
 * Charty T-square
+* Chittleton Turgils
+* Chumburg Turkey
+* Chelton Tilts
+* C-mutt Atom
+* Henning Mankell
+* Shudder Muscle
+* Chunnel Turtwig
 
 ![Magic Mike](img/magic-mike.jpg)
 ![Science](img/science.gif)
