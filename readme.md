@@ -69,6 +69,7 @@ A list of names that Channing Tatum would probably answer to:
 * Shudder Muscle
 * Chunnel Turtwig
 * Chuggachugga TOOT TOOT!
+* Chewable Tablet
 
 ![Magic Mike](img/magic-mike.jpg)
 ![Science](img/science.gif)
