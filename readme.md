@@ -70,6 +70,8 @@ A list of names that Channing Tatum would probably answer to:
 * Chunnel Turtwig
 * Chuggachugga TOOT TOOT!
 * Chewable Tablet
+* Carol Channing
+* Chewbacca Tantrum
 
 ![Magic Mike](img/magic-mike.jpg)
 ![Science](img/science.gif)
